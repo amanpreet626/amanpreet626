@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Aman
+- 👀 I’m interested in talking with new people 
+- 🌱 I’m currently learning how to grow on social media
+- 📫 How to reach me on my ig axxraipur22 
